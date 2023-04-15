@@ -6,7 +6,7 @@ How this recipe was dicovered is a funny story.
 
 Imagine a birthday for twins. One is alergic to milk and the other to butter. The friends from school was coming to thier birthday and we needed burgers, hotdogs and cake. We live on a farm so we can easily check what is in our burgers and hotdogs. However, when we bake cake it is tricky for us because papa is also allergic, but to nuts. Mama has high blood sugar so not too much sugar in the food. 
 
-It turns out there was another family in their class with twins and one had high blood sugar and the other was alergic to nut. Mama could not digest milk and papa was on a diet so it was no butter for him. They had a recipe on a fantastic chocolate cake all of them could eat. 
+It turns out there was another family in their class with twins and one had high blood sugar and the other was alergic to nuts. Mama could not digest milk and papa was on a diet so it was no butter for him. They had a recipe on a fantastic chocolate cake all of them could eat. 
 
 Imagine, they were willing to share the recipe with us. We were very thankful and invited all four in the family to our twins birthday. 
 
