@@ -11,6 +11,8 @@ What you need
 * A pinch of salt
 * 2 tbsp olive oil
 * 3 tbsp water
+* Whipped-cream (non-dairy)
+* M & Ms
 
 Steps
 =====
@@ -19,3 +21,5 @@ Steps
 2. Add the oil and water.
 3. Mix until everything is mixed together well.
 4. Microwave for 1 minute 40 seconds.
+5. Garnish with whipped-cream on top
+6. Sprinkle M & Ms on top 
